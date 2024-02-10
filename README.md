@@ -6,6 +6,7 @@ Things i'm interested in:
 - Greek hamburger restaurants
 - Meme design
 - Surfing
+- getting things done
 
 Things i'm not interested in: 
 - Being mean to people
