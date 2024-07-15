@@ -10,4 +10,4 @@ Things i'm interested in:
 
 Things i'm not interested in: 
 - Being mean to people
-- not not not trying my best
+- Bikeshedding 
